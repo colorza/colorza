@@ -1,5 +1,7 @@
 ![image_2023-07-13_123450740](https://github.com/colorza/colorza/assets/138011858/b2ebf02c-ab30-4a15-89d2-43f24ca3f2c7)
 
+- https://twitter.com/OogyPng
+
 <b>hi , so apparantly . patreon is literally making me crumble by seeing none at all ?? but basic abt me
 
 i like so many shit mcyt ( smpe , osmp , rsmp , asmp , qsmp + hardcore )
