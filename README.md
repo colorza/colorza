@@ -1,6 +1,8 @@
-![image_2023-07-21_155113898](https://media.discordapp.net/attachments/1038322852547530752/1142356373703753788/image.png?width=448&height=123)
+![image](https://github.com/colorza/colorza/assets/138011858/8355b04d-d00f-4603-91f3-a5221646df10)
 
-[credits](https://twitter.com/spbsjkbss?lang=zh-Hant) !!
+[ironmouse banner just where i can see](https://www.twitch.tv/ironmouse) !!
+
+i am a longtime vtuber fan btw but omg back to my ironmouse phase kind of
 
 general stuff ;;
 <i>[rentry](https://rentry.co/oldza)</i> ★ <i>[patreon](https://www.patreon.com/glorytotheae/about) !!</i>
