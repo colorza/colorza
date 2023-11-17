@@ -7,8 +7,6 @@ please .
 general stuff ;;
 <i>[rentry](https://rentry.co/oldza)</i> ★ <i>[patreon](https://www.patreon.com/glorytotheae/about) !!</i>
 
-wip [rentry](https://rentry.co/vineeestaff)
-
 <b>i probably can be seen w too many skins but hi 
 i often can be seen as many philza skins or pink 
 skins or stampy , or anything else this profile changes 
