@@ -1,8 +1,8 @@
-![image](https://github.com/colorza/colorza/assets/138011858/8355b04d-d00f-4603-91f3-a5221646df10)
+![image](https://github.com/colorza/colorza/assets/138011858/15e5ffde-7f09-4b04-9981-8b9250c95ee2)
 
-[ironmouse banner just where i can see](https://www.twitch.tv/ironmouse) !!
+[note](https://twitter.com/WolfyNotWitch/status/1701137097305075839?t=zR2eZnKO2umRn1GPxh7Nzg&s=19) !!
 
-i am a longtime vtuber fan btw but omg back to my ironmouse phase kind of
+please .
 
 general stuff ;;
 <i>[rentry](https://rentry.co/oldza)</i> ★ <i>[patreon](https://www.patreon.com/glorytotheae/about) !!</i>
