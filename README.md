@@ -7,7 +7,8 @@ please . for the love of god if i see one comment abt qsmp in hardcore streams i
 general stuff ;;
 <i>[rentry](https://rentry.co/oldza)</i> ★ <i>[patreon](https://www.patreon.com/glorytotheae/about) !!</i>
 
-<b>i probably can be seen w too many skins but hi 
-i often can be seen as many philza skins or pink 
-skins or stampy , or anything else this profile changes 
-a lot btww</b>
+i hyperfix colorzas and philza and vtubers 
+
+itself this is just me asking for people who knows my interests 
+
+( also slowly getting hyperfixated to love live ( µ's live laugh love ) )
