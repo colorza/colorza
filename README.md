@@ -1,4 +1,4 @@
-![image](https://github.com/colorza/colorza/assets/138011858/15e5ffde-7f09-4b04-9981-8b9250c95ee2)
+![sky : cotl](https://github.com/colorza/colorza/assets/138011858/2027b50d-faa0-42f7-a621-9e1c9ddf441b)
 
 [note](https://twitter.com/WolfyNotWitch/status/1701137097305075839?t=zR2eZnKO2umRn1GPxh7Nzg&s=19) !!
 
