@@ -7,13 +7,11 @@
 ![image](https://github.com/colorza/colorza/assets/138011858/9d9fdf4f-a0a5-4b33-892a-e71fffa53d2e)
 
 
- ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   i 've lost my trust on reality .
+ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   " i 've lost my trust on time . "
 
  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ✦﹒ ⠀  [rntry](https://rentry.co/oldza) & [patreon](https://www.patreon.com/glorytotheae) !!
 
-  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ✦﹒ ⠀  [note](https://twitter.com/WolfyNotWitch/status/1701137097305075839?t=zR2eZnKO2umRn1GPxh7Nzg&s=19) !!
-
-  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀     📜﹒ pls ., dont mention qsmp in hc streams pls
+  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ✦﹒ ⠀  [note](https://twitter.com/WolfyNotWitch/status/1701139934374179122) !!
 
    ⠀ ✦﹒ ⠀phil / zeph , hyperfixed on 
    
