@@ -1,14 +1,33 @@
+      ⠀ ✦﹒ ⠀IF I WISHED MYSELF A SUPERPOWER
+      ⠀     I WOULD MAKE THIS MOMENT LAST FOR HOURS .
+      ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+
+![image](https://github.com/colorza/colorza/assets/138011858/18a69c9b-79fd-4e93-b3ab-499c364b9cea)
 ![sky : cotl](https://github.com/colorza/colorza/assets/138011858/2027b50d-faa0-42f7-a621-9e1c9ddf441b)
+![image](https://github.com/colorza/colorza/assets/138011858/9d9fdf4f-a0a5-4b33-892a-e71fffa53d2e)
 
-[note](https://twitter.com/WolfyNotWitch/status/1701137097305075839?t=zR2eZnKO2umRn1GPxh7Nzg&s=19) !!
 
-please . for the love of god if i see one comment abt qsmp in hardcore streams i will brawl .
+ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   i 've lost my trust on reality .
 
-general stuff ;;
-<i>[rentry](https://rentry.co/oldza)</i> ★ <i>[patreon](https://www.patreon.com/glorytotheae/about) !!</i>
+ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ✦﹒ ⠀  [rntry](https://rentry.co/oldza) & [patreon](https://www.patreon.com/glorytotheae) !!
 
-i hyperfix colorzas and philza and vtubers 
+  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ✦﹒ ⠀  [note](https://twitter.com/WolfyNotWitch/status/1701137097305075839?t=zR2eZnKO2umRn1GPxh7Nzg&s=19) !!
 
-itself this is just me asking for people who knows my interests 
+  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀     📜﹒ pls ., dont mention qsmp in hc streams pls
 
-( also slowly getting hyperfixated to love live ( µ's live laugh love ) )
+   ⠀ ✦﹒ ⠀phil / zeph , hyperfixed on 
+   
+   ⠀          ⠀ ⠀  philza / colorzas & vtubers .
+
+   ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀     ⠀    ⠀    ⠀    ⠀       ⠀    ⠀    ⠀    ⠀    ⠀    ⠀                            ⠀ ✦﹒ ⠀glory to the antarctic empire .
+
+  ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀     ⠀    ⠀    ⠀    ⠀       ⠀    ⠀    ⠀    ⠀    ⠀    ⠀                                ⠀ — ⠀w2i when int ^_^
+   ![image](https://github.com/colorza/colorza/assets/138011858/94466218-77db-4f34-a0c1-cf982557272f)
+
+
+   
+      ⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀
+          ✦﹒ ⠀IF I HAD MY WILL , TIME WOULD JUST STAND STILL
+              WAIT FOR ME UNTIL I FIND SOME MAGIC FILM
+
+              TO TAKE A PHOTOGRAPH , AND LIVE INSIDE IT ALL .
